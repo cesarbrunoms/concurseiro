@@ -42,7 +42,8 @@
 <a href="https://youtu.be/H66eOQZXWy0?si=xB2PhsevXthcW2eO" target="_blank">2 - Ortografia - Empregos de J e G [Prof Noslen]</a> <br><br>
 <a href="https://youtu.be/8Uj8ISzzBJE?si=Ek0Fs6f6YESDWFCs" target="_blank">3 - Ortografia - Empregos de X, CH e MAU, MAL [Prof Noslen]</a> <br><br>
 <a href="https://youtu.be/URRKbBkECsY?si=W142_xAFHw2dtKY3" target="_blank">4 - Ortografia - Empregos de E e I nos verbos [Professor Noslen]</a> <br><br>
-<a href="https://www.youtube.com/watch?v=AQfHQP-JLcA" target="_blank">5 - Ortografia - Uso dos Porquês [Prof Noslen]</a> <br><br>
+<a href="https://youtu.be/AQfHQP-JLcA?si=OtIl_8h0yG8sIKD8" target="_blank">5 - Uso dos Porques</a> <br><br>
+<a href="https://www.youtube.com/watch?v=AQfHQP-JLcA" target="_blank">6 - Ortografia - Uso dos Porquês [Prof Noslen]</a> <br><br>
 <a href="https://www.youtube.com/watch?v=Qja9wuPmsfY" target="_blank">1 - QUESTÕES - Ortografia [Prof Noslen]</a> <br><br>
 <a href="https://www.youtube.com/watch?v=w2k-HxZm594" target="_blank">2 - QUESTÕES - Ortografia | Aula Completa</a> <br><br>
 </details> <br><br>
