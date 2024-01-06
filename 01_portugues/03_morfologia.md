@@ -29,8 +29,8 @@
 
 <details><summary>4 - Numeral | 5 - Artigo</summary>
 <a href="https://www.youtube.com/watch?v=lkxc-hStcuE" target="_blank">1 - Numeral - Artigo [Prof Noslen]</a> <br><br>
-<a href="https://www.youtube.com/watch?v=97jXavmrOSo" target="_blank">1 - QUESTÕES - Exercícios Numeral</a> <br><br>
-<a href="https://www.youtube.com/watch?v=ziOFBlj8Utc" target="_blank">2 - QUESTÕES - Exercícios Artigos</a> <br><br>
+<a href="https://youtu.be/yhcZgUrCTG8?si=l7SFVkUCzuTybUag" target="_blank">1 - QUESTÕES - Exercícios de Numeral, artigo e interjeição [Prof Noslen]</a> <br><br>
+<a href="https://youtu.be/917QuIKcVSo?si=WKosugNLH5yhHQQU" target="_blank">2 - QUESTÕES - Palavra “um”: numeral ou artigo? [Prof. Noslen]</a> <br><br>
 </details> <br><br>
 
 <details><summary>6 - Pronome</summary>
