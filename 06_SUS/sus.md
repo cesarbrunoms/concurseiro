@@ -2,10 +2,10 @@
 #### [1 - PRINCÍPIOS E DIRETRIZES DO SUS](https://youtu.be/4yv2zII7jWw?si=IEnmWZMXKgFDyfn5)
 
 
-#### [2 - Lei 8.080/90 - Competências e Atribuições no SUS (Profª Juliana Mello)](https://youtu.be/BqkS4-Fo4tU?si=LUp-XatTtSxozaNb)
-
-
 #### [3 - Princípios e Diretrizes SUS, Atenção Básica, Doutrinários e Organizativos + Questões COMO MEMORIZAR.](https://youtu.be/t8_2_iXwQyU?si=u571aUHMLdYBNUdC)
+
+
+#### [2 - Lei 8.080/90 - Competências e Atribuições no SUS (Profª Juliana Mello)](https://youtu.be/BqkS4-Fo4tU?si=LUp-XatTtSxozaNb)
 
 
 #### [4 - SUS FACILITADO (Ep 1): Diretrizes e Bases de implantação do Sistema Único de Saúde](https://youtu.be/vGN5pBDaAaQ?si=FlsZA55qFOtzFIeC)
