@@ -9,6 +9,6 @@
 #### [2A - Funções da administração║Planejamento, Organização, Direção e Controle║Resumo Animado](https://youtu.be/J9p1h3JqB5U?si=f9QwKlMr8OAR3X-L)
 
 
-#### [2B - Funções Administrativas: Planejamento, Organização, Direção e Controle](https://youtu.be/X9j2xGTELbs?si=nqNTE1b5_nbFECrb)
+#### [2B - PLANEJAMENTO, DIREÇÃO, COMUNICAÇÃO, E CONTROLE [QUESTÕES COMENTADAS]](https://youtu.be/unySLyJYbsQ?si=zwbYDNd-Hy__E3CR)
 
 
