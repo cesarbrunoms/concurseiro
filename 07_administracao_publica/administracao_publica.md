@@ -12,3 +12,9 @@
 #### [2B - PLANEJAMENTO, DIREÇÃO, COMUNICAÇÃO, E CONTROLE [QUESTÕES COMENTADAS]](https://youtu.be/unySLyJYbsQ?si=zwbYDNd-Hy__E3CR)
 
 
+#### [3A - DESCONCENTRAÇÃO X DESCENTRALIZAÇÃO VÍDEO MAPEADO](https://youtu.be/4yk42mjvzd8?si=ApQT5_d7cZvfCRO5)
+
+
+#### [4A - Administração Pública DIRETA e INDIRETA (resumo) - Características, Diferenças e Exemplos](https://youtu.be/1jxlt12qK-k?si=eAtWayhhJh3Zp8-J)
+
+
