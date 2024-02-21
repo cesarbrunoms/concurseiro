@@ -18,3 +18,6 @@
 #### [4A - Administração Pública DIRETA e INDIRETA (resumo) - Características, Diferenças e Exemplos](https://youtu.be/1jxlt12qK-k?si=eAtWayhhJh3Zp8-J)
 
 
+#### [5A - Características Básicas das Organizações Formais Modernas](https://youtu.be/QHpS4vzK9_E?si=hknPPECQpPj2B9Sy)
+
+
